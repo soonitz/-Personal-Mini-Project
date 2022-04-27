@@ -1,2 +1,2 @@
-# Personal-Mini-Project
+# Personal-Mini-Projects
 📓 📔📕 📗 📘 📙 📊 📈
